@@ -1,7 +1,4 @@
-puzzle
-she/he
-I like horses and things that are related to horses
-I love my bf
+i love my bf and anything horses, ask me about mules
 
 <!---
 yimpy/yimpy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
