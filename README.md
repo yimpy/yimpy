@@ -1,4 +1,4 @@
-i love my bf and anything horses, ask me about mules
+i love my bf and anything horses, ask me about mules :o) a strawpage is in the works
 
 <!---
 yimpy/yimpy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
