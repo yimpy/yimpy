@@ -1,4 +1,4 @@
-<img width="800" height="578" alt="dyl-ezgif com-optimize" src="https://github.com/user-attachments/assets/0b3835d4-64f4-420f-a934-4ce87115b85b" />
+<img width="400" height="289" alt="dyl-ezgif com-optimize" src="https://github.com/user-attachments/assets/0b3835d4-64f4-420f-a934-4ce87115b85b" />
 
 I don't know how to make this BS.
 
