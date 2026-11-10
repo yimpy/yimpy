@@ -1,13 +1,16 @@
-<img width="400" height="289" alt="dyl-ezgif com-optimize" src="https://github.com/user-attachments/assets/0b3835d4-64f4-420f-a934-4ce87115b85b" />
+![](https://komarev.com/ghpvc/?username=yimpy)
 
-I don't know how to make this BS.
+<img width="312" height="200" alt="tumblr_707d535a1f076ab61662ad5b36c90ef7_70fafee7_2048-removebg-preview" src="https://github.com/user-attachments/assets/0f499ae7-779d-419f-b138-5dc3f79b0377" />
 
-he/him   seventeen   tcc diddyblud
+Ambrose. 17M KS
 
-W2I  feel free to sit by me too
+TCC diddenblut
+<hr/>
 
-<14 don't interact
+W2I. feel free to sit by me too
+
+<14 don't interact otherwise I block/hide freely
 
 I'm everywhere. I mostly like to sit by docks though
 
-IC filthy-purgati0n on tumblr
+AC filthy-purgati0n on tumblr
