@@ -2,14 +2,12 @@
 
 I don't know how to make this BS.
 
-he/him seventeen tisisi diddyblud
+he/him   seventeen   tcc diddyblud
 
-block/hide me whatever I don't care for discourse
+W2I  feel free to sit by me too
 
-w2i majority of the time. feel free to sit by me too
+<14 don't interact
 
-I prefer to talk to people my age so 14- don't interact thanks
+I'm everywhere. I mostly like to sit by docks though
 
-I'm everywhere but find me by danganronpa area 99% of the time
-
-ic filthy-purgati0n on tumblr
+IC filthy-purgati0n on tumblr
